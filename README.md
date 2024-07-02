@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/AnshuPatel0027](https://github.com/AnshuPatel0027)
 
-- 📫 How to reach me **apcodes.tech@proton.me**
+- 📫 How to reach me **patelanshu0027@protonmail.com**
 
 - 📄 Know about my experiences [https://linktr.ee/apcodes](https://linktr.ee/apcodes)
 
